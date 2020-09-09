@@ -1,4 +1,4 @@
-![My profile](https://i.imgur.com/8jGZBND.png)
+![My profile](https://i.imgur.com/8jGZBND.png?1)
 
 # Hi, I'm Viet
 
